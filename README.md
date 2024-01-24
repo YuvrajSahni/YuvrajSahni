@@ -7,7 +7,7 @@
 
 - 📫 Reach me at **yuvrajsahni3@gmail.com**
 
-- 📄 Portfolio [Resume](https://drive.google.com/file/d/1cEAcwvZAOAdbARpKvt8Hemhb-TuDnXDf/view?usp=drive_link)
+- 📄 Portfolio [Resume](https://drive.google.com/file/d/1VlrEWc6l67kqatURuKsBZv770O8AKYXA/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
